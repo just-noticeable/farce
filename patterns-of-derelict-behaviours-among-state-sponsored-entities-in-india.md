@@ -90,7 +90,7 @@ So, discerning scholars and august citizens need to understand that:
 
 	- [The Word (Logos | Λόγος)](https://en.wikipedia.org/wiki/Logos_(Christianity)). 
 
-The Law is referred by the above mentioned names in various cultures since antiquity, in the ontic sense that God within God's godly self, *is* the law, that human beings must abide by and regard as being perpetually inviolate, irrespective of human experiences and intellectual discussions.  
+The Law is referred by the above mentioned names in various cultures since antiquity, in the ontic sense that God within God's godly self, *is* the law. As such, conscientious human beings must abide by, and regard The Law as being perpetually inviolate, irrespective of human experiences and intellectual discussions.  
 
 The Ultimate Judge, is also known as ["al-ʿAdl" (ٱلْعَدْلُ)](https://en.wikipedia.org/wiki/Names_of_God_in_Islam#al-Tirmidhi's_list), which is one of the magnificent names of The Truth, and the Lord of the Worlds (al-Haqu waRabbu alealamin | <span lang="ar" dir="rtl">الحق ورب العالمين</span>).  
 
