@@ -4,3 +4,7 @@ Exposing the systemic methods used by various governments, and organizations, th
 ## 2020
 
 ### [2020-06-13 | The Judicial Pageantry](https://github.com/just-noticeable/farce/blob/master/the-judicial-pageantry.md) 
+
+## 2025
+
+### [2020-06-13 | The Judicial Pageantry](https://github.com/just-noticeable/farce/blob/master/patterns-of-derelict-behaviours-among-state-sponsored-entities-in-india.md) 
