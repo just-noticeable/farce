@@ -3,7 +3,7 @@
 Dear Gentle Reader,
 
 
-Please be aware of the "patterns of derelict behaviours" being conducted by various incumbent officers of the current Government of India (GoI), that is being orchestrated in concert with with various and several, colluding professionals in each sector of industry and commerce within India. Those deleterious behavioral patterns include, but are not limited to:
+Please be aware of the "patterns of derelict behaviours" being conducted by various incumbent officers of the current Government of India (GoI), that are being orchestrated in concert with various and several, colluding professionals in each sector of industry and commerce within India. Those deleterious behavioral patterns include, but are not limited to:
 
 - Keeping the positions and office of the President of the *Ethics and Medical Registration Board,* of the *National Medical Commission,* vacant for years, so as to thwart complaints filed about ethical and medical malpractices against bad doctors and misbehaving medical institutes.
 
@@ -15,6 +15,7 @@ Please be aware of the "patterns of derelict behaviours" being conducted by vari
 
 Such cunning tactics for disabling the proper functionality of autonomous boards and commission have been rampant in India. Moreover, those autonomous or semi-autonomous entities sponsored by "The State", were otherwise constituted by Legislation for the good of the public and for promoting social equality. This is the plain and obvious evidence of the types of harmful tactics and habitual behaviours that the current Govt. of India, under the leadership of Mr. Narendra Modi, is attempting to commit yet again, by interfering with autonomous entities such as the *[Waqf Board.](https://en.wikipedia.org/wiki/Central_Waqf_Council)*
 
+<br>
 
 <div align="center">
 
