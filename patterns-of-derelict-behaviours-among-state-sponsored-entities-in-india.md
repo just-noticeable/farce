@@ -51,7 +51,7 @@ Now, the actual legislative farce in India, among various industry sectors, is c
 	
 1. Similar to the above type of systemic faults and errors, that exist by design and not by any mistake or accident, *Sections 80 and 92 of the Consumer Protection Act, 2019, amended up to December 2024,* have also been in derogation to the State's laws governing Allopethic medicine in states like Telangana, and in abject contravention of the Constitution of India.  
 
-	1. Therefore, by no means, were any victims or plaintiffs ever supposed to be sent to a Consumer Forum, especially by legal practitioners and policing agencies, without firstly filing a petition or a private lawsuit in jurisdictional court presided by a First Class Magistrate of the law. 
+	1. Therefore, by no means, were any victims or plaintiffs ever supposed to be sent to a Consumer Forum, especially by legal practitioners and policing agencies, without firstly filing a petition or a private lawsuit in a jurisdictional court presided by a First Class Magistrate of the law. 
 	
 	1. The above-mentioned point is especially important because, healthcare and educational organizations in India have been taking undue advantages of the limitations of Medical Councils, Education Boards, semi-autonomous Accreditation Bodies, and Consumer Forums. This information is necessary for the public, especially to educate aspiring Indian Administrative Services officers, about the felonies and punishable crimes, that have continued to remain hidden within the day-to-day trade practices of identified and culpable educational organizations and healthcare providers. 
 	
