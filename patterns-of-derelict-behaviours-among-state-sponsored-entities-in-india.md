@@ -9,7 +9,7 @@ Please be aware of the "patterns of derelict behaviours" being conducted by vari
 
 - Appointing incompetent and negligent officers in state level Medical Councils who willfully turn a blind-eye to complaints submitted about ongoing wrongdoings of bad medical practitioners and healthcare providers, in states like Telangana and New Delhi. 
 
-- Handicapping and wounding the functioning of state level *Consumer Disputes Redressal Commission* by not appointing a full, three-member panel and tribunal of the said Commission in states like Telangana, since the year 2014. "How can an overloaded three-wheel rickshaw ever work properly on merely one or two wheels?"  
+- Handicapping and wounding the functioning of state level *Consumer Disputes Redressal Commission* by not appointing a full, three-member panel and tribunal of the said Commission in states like Telangana, since the year 2014. "How can an overloaded three-wheeler rickshaw, ever work properly on merely one or two wheels?"  
 
 - Not appointing a Commissioner for the *Human Rights and RTI Commission* since the year 2022, in many states of The Republic. This is how the "appeals process" legislated by the *Right To Information Act, 2005,* has been deliberately handicapped by the incumbent GoI. 
 
