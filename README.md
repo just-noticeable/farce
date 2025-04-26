@@ -1,5 +1,5 @@
 # Farce
-Exposing the systemic methods used by various governments, and organizations, that underhandedly violate human rights.
+Exposing the systemic methods used by various governments and organizations, that have continued to underhandedly violate human dignity and Fundamental Rights.
 
 ## 2020
 
