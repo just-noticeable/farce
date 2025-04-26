@@ -1,7 +1,10 @@
 ## Existing Patterns of Derelict Behaviours Among State-Sponsored Entities in India
 
-Dear Gentle Reader,
+<sub><p>Published in the interests of public information, consumer awareness, and justice.</p></sub> 
 
+---
+
+Dear Gentle Reader,
 
 Please be aware of the "patterns of derelict behaviours" being conducted by various incumbent officers of the current Government of India (GoI), that are being orchestrated in concert with various and several, colluding professionals in each sector of industry and commerce within India. Those deleterious behavioral patterns include, but are not limited to:
 
@@ -50,7 +53,7 @@ Now, the actual legislative farce in India, among various industry sectors, is c
 
 	1. Therefore, by no means, were any victims or plaintiffs ever supposed to be sent to a Consumer Forum, especially by legal practitioners and policing agencies, without firstly filing a petition or a private lawsuit in jurisdictional court presided by a First Class Magistrate of the law. 
 	
-	1. The above-mentioned point is especially important because, healthcare and educational organizations in India been able to take undue advantages of the limitations of Medical Councils, Education Boards, semi-autonomous Accreditation Bodies, and Consumer Forums, to educate the felonies and punishable crimes that hidden within the day-to-day trade practices of identified and culpable educational organizations and healthcare providers. 
+	1. The above-mentioned point is especially important because, healthcare and educational organizations in India have been taking undue advantages of the limitations of Medical Councils, Education Boards, semi-autonomous Accreditation Bodies, and Consumer Forums. This information is necessary for the public, especially to educate aspiring Indian Administrative Services officers, about the felonies and punishable crimes, that have continued to remain hidden within the day-to-day trade practices of identified and culpable educational organizations and healthcare providers. 
 	
 	1. Indeed, it is clearly evident that the *Ministry of Commerce, Industry, & Consumer Affairs* in India, has been operating its parallel court system, via the ruse of using Consumer Forums as qusi-judiciary bodies. These qusi-judiciary bodies end up unjustly favoring corporate entities because of the way they cause attrition to victims and deponents. This results in a National Security breach and ongoing issue, because domestic and foreign corporations are able to exploit this loophole within Consumer Forums to do harm to India's citizens and residents at large, while damaging India's national economy and industrial capacity. 
 	
