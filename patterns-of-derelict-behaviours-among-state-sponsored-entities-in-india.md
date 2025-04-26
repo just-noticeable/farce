@@ -93,9 +93,9 @@ So, discerning scholars and august citizens need to understand that:
 
 The Law is referred by the above mentioned names in various cultures since antiquity, in the ontic sense that God within God's godly self, *is* the law. As such, conscientious human beings must abide by, and regard The Law as being perpetually inviolate, irrespective of human experiences and intellectual discussions.  
 
-The Ultimate Judge, is also known as ["al ʿAdl" (ٱلْعَدْلُ)](https://en.wikipedia.org/wiki/Names_of_God_in_Islam#al-Tirmidhi's_list), which is one of the magnificent names of The Truth, and the Lord of the Worlds (al-Haqu waRabbu alealamin | <span lang="ar" dir="rtl">الحق ورب العالمين</span>).  
+The Ultimate Judge, is also known as ["al ʿAdl" (ٱلْعَدْلُ)](https://en.wikipedia.org/wiki/Names_of_God_in_Islam#al-Tirmidhi's_list), which is one of the magnificent names of The Truth, and the Lord of the Worlds (al Haqu wa Rabbu al ealamin | <span lang="ar" dir="rtl">الحق ورب العالمين</span>).  
 
-For practicing Muslims, Islam is The Law, which is revealed to skeptic human beings via the Quran, Angles, Prophets, and through the Signs (al-Aayat | الآية), by Allah al-Wakeel (The Ultimate Decision Maker), and is ontic to The Universe. 
+For practicing Muslims, Islam is The Law, which is revealed to skeptic human beings via the Quran, Angles, Prophets, and through the Signs (al Aayat | الآية), by Allah al Wakeel (The Ultimate Decision Maker), and is ontic to The Universe. 
 
 >**Dedicating something to Allah via consecration or sacrifice, or devoting one's self to Allah through a covenant with Allah, is a religious right and a freedom, enjoined upon all Muslims, throughout the world.** 
 
