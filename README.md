@@ -7,4 +7,4 @@ Exposing the systemic methods used by various governments, and organizations, th
 
 ## 2025
 
-### [2020-06-13 | The Judicial Pageantry](https://github.com/just-noticeable/farce/blob/master/patterns-of-derelict-behaviours-among-state-sponsored-entities-in-india.md) 
+### [2020-06-13 | Existing Patterns of Derelict Behaviours Among State-Sponsored Entities in India](https://github.com/just-noticeable/farce/blob/master/patterns-of-derelict-behaviours-among-state-sponsored-entities-in-india.md) 
