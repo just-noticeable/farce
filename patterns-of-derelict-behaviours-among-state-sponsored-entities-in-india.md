@@ -47,9 +47,9 @@ Now, the actual legislative farce in India, among various industry sectors, is c
 
 	1. As such, these are some of the ways in which, *Section 54 of the National Medical Commission Act, 2019,* has continued to be derogatory and contradictory to the State's statutes governing Allopathic medicine in India, and has also been in contravention of the foundational laws in force via the Constitution of India, since the date of its conception and legislation. 
 	
-	1. Worst of all, due to such contradictions in how the laws are currently legislated and implemented, state and national level bureaucrats belonging to Medical Councils who are neither judges nor magistrates of the law, have been enjoying powers and abilities that exceed and dominate the judiciary powers vested in the officers of India's Magisterial Courts, Special Courts, High Courts, and Supreme Court. 
+	1. Worst of all, due to such contradictions in how the laws are currently legislated and implemented, state and national level bureaucrats belonging to Medical Councils who are neither judges nor magistrates of the law, have been enjoying powers for adjudicating legal cases involving clinicians, that take primacy over the judiciary powers vested in the officers of India's Magisterial Courts, Special Courts, High Courts, and Supreme Court. 
 	
-1. Similar to the above type of systemic faults and errors, that exist by design and not by any mistake or accident, *Sections 80 and 92 of the Consumer Protection Act, 2019, amended up to December 2024,* have also been in derogation to the State's laws governing Allopathic medicine in states like Telangana, and in abject contravention of the Constitution of India.  
+1. Similar to the above type of systemic faults and errors, that exist by design and not by any mistake or accident, *Sections 80 and 92 of the Consumer Protection Act, 2019, amended up to December 2024,* have also been in derogation to the State's laws governing Allopathic medicine in states like Telangana, and in abject contravention of ***Part III of the Constitution of India.***  
 
 	1. Therefore, by no means, were any victims or plaintiffs ever supposed to be sent to a Consumer Forum, especially by legal practitioners and policing agencies, without firstly filing a petition or a private lawsuit in a jurisdictional court presided by a First Class Magistrate of the law. 
 	
