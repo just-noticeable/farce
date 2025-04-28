@@ -16,7 +16,7 @@ Please be aware of the "patterns of derelict behaviours" being conducted by vari
 
 - Not appointing a Commissioner for the *Human Rights and RTI Commission* since the year 2022, in many states of The Republic. This is how the "appeals process" legislated by the *Right To Information Act, 2005,* has been deliberately handicapped by the incumbent GoI. 
 
-Such cunning tactics for disabling the proper functionality of autonomous boards and commission have been rampant in India. Moreover, those autonomous or semi-autonomous entities sponsored by "The State", were otherwise constituted by Legislation for the good of the public and for promoting social equality. This is the plain and obvious evidence of the types of harmful tactics and habitual behaviours that the current Govt. of India, under the leadership of Mr. Narendra Modi, is attempting to commit yet again, by interfering with autonomous entities such as the *[Waqf Board.](https://en.wikipedia.org/wiki/Central_Waqf_Council)*
+For more than a decade, such cunning tactics for disabling the proper functionality of autonomous boards and commissionerates have been deployed by several bureaucracies. However, those autonomous or semi-autonomous entities sponsored by "The State", were otherwise constituted by Legislation, for the good of the public and for promoting social equality. This is the plain and obvious evidence showcasing the types of harmful tactics and habitual behaviours that the current Govt. of India, under the leadership of Mr. Narendra Modi, is attempting to commit yet again, by interfering with autonomous entities such as the *[Waqf Board.](https://en.wikipedia.org/wiki/Central_Waqf_Council)*
 
 <br>
 
